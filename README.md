@@ -1,0 +1,1 @@
+# semes1_python_tugas_kecil
